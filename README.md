@@ -11,3 +11,6 @@ Anyways, hope you enjoy! and happy cheating.
 Linux installation:
 
 Proton tricks -> default wine -> open regedit -> file -> import reg file, run game enjoy cheating.
+
+Trouble shooting.
+If it says invalid registry edit make sure to download it via the zip file, and not right clcik save as. As that causes issues. So just download it via zip 😄
