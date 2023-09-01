@@ -22,7 +22,7 @@ Also I'm very aware of the TLD communities stance on "cheating", i dont really g
 
 
 
-
+WARNING FOR PIRATED USERS WHO PLAY THE GAME, THE MOD LOADER TARGETS THOSE WHO PIRATED THE GAME, IT'LL SPIT OUT A ERROR CALLED "error dll file mising, help" DO NOT ASK FOR HELP, THIS IS A WAY THEY BAN THEY BAN PEOPLE WHO USE PIRATED COPIES.
 
 
 Special section for pancake and the other mod(s) ^-^
