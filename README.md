@@ -22,7 +22,9 @@ Also I'm very aware of the TLD communities stance on "cheating", i dont really g
 
 
 
-WARNING FOR PIRATED USERS WHO PLAY THE GAME, THE MOD LOADER TARGETS THOSE WHO PIRATED THE GAME, IT'LL SPIT OUT A ERROR CALLED "error dll file mising, help" DO NOT ASK FOR HELP, THIS IS A WAY THEY BAN THEY BAN PEOPLE WHO USE PIRATED COPIES.
+**WARNING FOR PIRATED USERS WHO PLAY THE GAME, THE MOD LOADER TARGETS THOSE WHO PIRATED THE GAME, IT'LL SPIT OUT A ERROR CALLED "error dll file mising, help" DO NOT ASK FOR HELP, THIS IS A WAY THEY BAN THEY BAN PEOPLE WHO USE PIRATED COPIES.**
+Potential fix (this is old so idk it works anymore)  move TLD into  C:\Program Files (x86)\Steam\steamapps\common\The Long Drive  (create folders when needed) as this should "trick" the mod loader into thinking its a legit copy.
+Now ofc I dont endorse pirating a game, espicially from a small indie dev, but their stance on pirating by blocking users from modding is stupid its needless and doesn't make pirated users want to use a legit copy of the game.
 
 
 Special section for pancake and the other mod(s) ^-^
