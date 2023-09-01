@@ -33,6 +33,10 @@ They also seem to ban people for having a black person as their profile, talk ab
 
 Bad bans / warns log. (i'll try and keep it updated here and now)
 
+BANNED FOR NOW ANSWERING IF HE OWNED THE GAME OR NOT LMAO
+https://triro.net/xbackbone/Rujo3/nIXikOGo90.png
+https://triro.net/xbackbone/Rujo3/kATotOYU75.png
+
 https://triro.net/xbackbone/Rujo3/HIfIhOYO01.png
 No valid proof of him being a "nazi" unless they consider a chad face profile pic being a nazi, bad ban.
 
