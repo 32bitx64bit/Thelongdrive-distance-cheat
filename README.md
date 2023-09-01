@@ -31,6 +31,8 @@ Warns people for no reason, will just warn you if you dare disagree with him. Al
 Basically moral of the story, the mod team for TLD is full of terrible people who can't take any sort of critism , disagreement, or different views. Basically their in a eco chamber.
 They also seem to ban people for having a black person as their profile, talk about racism from the mod team.
 
+Also I just found out (thanks to message logger) that the mods seem to ban people who don't answer, not scummy or corrupt at all.
+
 Bad bans / warns log. (i'll try and keep it updated here and now)
 
 BANNED FOR NOW ANSWERING IF HE OWNED THE GAME OR NOT LMAO
