@@ -39,6 +39,27 @@ Also I just found out (thanks to message logger) that the mods seem to ban peopl
 
 Bad bans / warns log. (i'll try and keep it updated here and now)
 
+Muted (maybe even banned, though its not public in the logs) for disagreeing with a mod.
+section 1 https://triro.net/xbackbone/Rujo3/xOhOfAgi26.png
+
+section 2 https://triro.net/xbackbone/Rujo3/qEcEXaQu80.png
+
+section 3 https://triro.net/xbackbone/Rujo3/jiwEJUrE34.png
+
+section 4 https://triro.net/xbackbone/Rujo3/DuduFAYO72.png
+
+Section 5 https://triro.net/xbackbone/Rujo3/vesalISe20.png
+
+Mute log - https://triro.net/xbackbone/Rujo3/luwedEdU43.png
+
+
+
+
+Banned for "shit posting" legit just said "Im gay" then "fake" yeah "shitposting"
+https://triro.net/xbackbone/Rujo3/zAMibITI34.png
+https://triro.net/xbackbone/Rujo3/GACIxeJE71.png
+
+
 **used** to pirate the game, and no longer did. still got banned.
 https://triro.net/xbackbone/Rujo3/jUBIbuGA13.png
 
