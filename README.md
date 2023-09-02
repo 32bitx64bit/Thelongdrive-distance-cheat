@@ -56,7 +56,7 @@ https://triro.net/xbackbone/Rujo3/reherIDi51.png
 You already know my stance on rule 13, its a stupid rule that shouldnt exist, its only goal is to gatekeep people from having fun.
 
 https://triro.net/xbackbone/Rujo3/dEruJIDI66.png
-Smh, why would someone not having the money to buy a game warrent a ban, how would they even prove you own a pirated version? Its just impossible to prove, they probably just use that rule to ban people they dont like, as i dont see many appeals happen from bans like that. I wont be covering anymore of these bans are they happen a lot.
+No proof that I can find lol.
 
 https://triro.net/xbackbone/Rujo3/menIBAfI07.png
 Wow having a black profile pic is apparntly racist now, talk about racism.
