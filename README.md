@@ -1,4 +1,7 @@
 # Thelongdrive-distance-cheat
+
+I also host Bad mod archive for TLD, https://git.triro.net/gavinx2031/TLD-bad-mod-archive It has full text converstations and everything *when avalible.* so if you're interested go check it out, as I wont be updating the bad bans section anymore here.
+
 A distance cheat for The long drive.
 
 Installation. (WINDOWS SCROLL DOWN FOR LINUX INSTALLATION)
