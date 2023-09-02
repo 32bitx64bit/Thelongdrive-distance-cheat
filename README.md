@@ -39,6 +39,9 @@ Also I just found out (thanks to message logger) that the mods seem to ban peopl
 
 Bad bans / warns log. (i'll try and keep it updated here and now)
 
+**used** to pirate the game, and no longer did. still got banned.
+https://triro.net/xbackbone/Rujo3/jUBIbuGA13.png
+
 BANNED FOR NOW ANSWERING IF HE OWNED THE GAME OR NOT LMAO
 https://triro.net/xbackbone/Rujo3/nIXikOGo90.png
 https://triro.net/xbackbone/Rujo3/kATotOYU75.png
